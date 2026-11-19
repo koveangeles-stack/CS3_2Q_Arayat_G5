@@ -4,3 +4,6 @@ That is all, I love you sir.
 
 # Duztin Azriel S. Sotto
 My name is Duztin Sotto. I like sleeping 😊
+
+# Caitlin Mariel T. Pineda
+My name is Mariel Pineda. I'm craving strawberry taho
