@@ -1,2 +1,3 @@
-# CS3_2Q_Arayat_G5
-THIS is the REPOSITORY for G5 Angeles. Sotto. Pineda.
+# Kobe Chanrec R. Angeles
+My name is Kobe Angeles. I like Social Science and Math but I am bad at math and comsci too. I love scrolling on instagram reels and I love to academically prowess in all my subjects. I have many pawns, yet only many.
+That is all, I love you sir.
